@@ -10,9 +10,13 @@ Hér er ljósmynd af samsetningu frumgerðar:
 hér er myndband af simon says spil https://youtu.be/8eDojpTAOGs 
 
 ----------------------
-Hér er mynd af lóða  ![image](https://user-images.githubusercontent.com/97167360/154862074-3d8a8dfb-74f5-4135-8f34-612f319f5116.png)
+Hér er mynd af lóða  ![image](https://user-images.githubusercontent.com/97167360/155609087-85809634-d973-423b-9556-969b316c4682.png) ![image](https://user-images.githubusercontent.com/97167360/155609113-7461abf1-f42d-4dd7-8ce1-8c52ce45b5a8.png)
 
 
-og hér er mynd af kassanum ![image](https://user-images.githubusercontent.com/97167360/154862182-e8144a0a-42ea-4e0a-9641-1e09d8fdf2b3.png)
+
+
+og hér er mynd af kassanum ![image](https://user-images.githubusercontent.com/97167360/155609210-d996084e-945b-4e5c-9d4a-b5bd4bb07fa4.png)
+![image](https://user-images.githubusercontent.com/97167360/155609234-178ea807-d2d3-4dba-9646-8400ed8428f3.png)
+
 
 Dominik Michal Girko, Tækniskólinn
